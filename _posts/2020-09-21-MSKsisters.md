@@ -1,3 +1,7 @@
+---
+title: "MSK sisters"
+date: 2020-09-20
+---
 Today, we let MSK(Mary, Sally, Kelly) sisters out at 8 AM. They were excited and flapping their wings as usual. 
 Near the beginning of the COVID-19 Pandemic, we were met with two little stray mallard ducklings. They 
 suddenly showed up at our front door, chased by predators, and we took them in- raised them for 8 weeks.
